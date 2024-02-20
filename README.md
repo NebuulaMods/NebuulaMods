@@ -1,1 +1,1 @@
-https://github.com/NebuulaMods/NebuulaMods/blob/45be9f0d4683efd9e3771be5b668db79ffcc165a/MenheraChanChibiGIF.gif
+MenheraChanChibiGIF.gif
