@@ -1,1 +1,1 @@
-![MenheraChanChibiGIF](https://github.com/NebuulaMods/NebuulaMods/assets/160175924/4424de8b-d2b9-4352-894a-6aca0b0d5b27)
+https://github.com/NebuulaMods/NebuulaMods/blob/45be9f0d4683efd9e3771be5b668db79ffcc165a/MenheraChanChibiGIF.gif
